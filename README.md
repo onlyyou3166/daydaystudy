@@ -5,7 +5,7 @@
 
 
 
-**为了学习而Study**
+**好好学习 天天向上**
 
 修改来源于：[LazyStudy](https://github.com/lolisaikou/LazyStudy)
 
